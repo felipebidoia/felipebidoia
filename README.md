@@ -1,4 +1,7 @@
-### Hi there 👋
+### **Felipe Bidoia**
+### 3 ano B - Tecnologia
+![](https://github.com/felipebidoia/felipebidoia/assets/170112703/46d5a939-42cd-4426-9a07-d78afcc31adf)
+
 
 <!--
 **felipebidoia/felipebidoia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
