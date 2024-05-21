@@ -1,4 +1,4 @@
-![hp](https://github.com/felipebidoia/felipebidoia/assets/170112703/90b7722b-85b7-4afb-9905-374d1be90744)### **Felipe Bidoia**
+### **Felipe Bidoia**
 ### 3 ano B - Tecnologia
 ![](![hp](https://github.com/felipebidoia/felipebidoia/assets/170112703/1b492067-8d5d-4442-9558-96af68ec8718)
 
